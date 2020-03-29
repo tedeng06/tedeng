@@ -1,0 +1,2 @@
+# tedeng
+Menyerang tanpa menyentuh
